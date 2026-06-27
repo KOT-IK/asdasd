@@ -1,2 +1,1 @@
-# asdasd
-af
+AFC7F0660B7CD66C - D4:E9:F4:70:3B:34 - Lifetime - Client1 - FPVP1LOT - Admin
